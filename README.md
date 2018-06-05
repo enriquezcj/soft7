@@ -1,2 +1,3 @@
 # soft7
 Iniciando...
+Bueno soy nuevo en esto y pues la verdad siempre me gusto compartir las cosas que uno experimenta y que mejor que contribuya en algo a los demas, a seguir y esperemos que nos vaya muy bien. 
